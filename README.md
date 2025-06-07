@@ -18,7 +18,7 @@ Here, creativity is currency. Your vibe is your voice. 🌈
 
 ### 🧠 Who’s Behind It?
 
-AuraHyprs is powered by the creative minds at **CastleWare International**,  
+AuraHyprs is powered by the creative minds at **CastleLabs InternAItional**,  
 a collective dedicated to building soulful technology with a human heart. 💖
 
 ---
@@ -40,6 +40,6 @@ a collective dedicated to building soulful technology with a human heart. 💖
 
 ---
 
-> ✨ Made with purpose, play and pixels – by [CastleWare International](https://aurahyprs.com)  
+> ✨ Made with purpose, play and pixels – by [CastleLabs InternAItional](https://aurahyprs.com)  
 > _We build spaces where creators belong._
 
