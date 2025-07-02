@@ -40,7 +40,7 @@ a collective dedicated to building soulful technology with a human heart. 💖
 
 ---
 
-> ✨ Made with purpose, play and pixels – by [CastleWare International](https://aurahyprs.com)  
+> ✨ Made with purpose, play and pixels – by [CastleLabs InternAItional](https://aurahyprs.com)  
 > _We build spaces where creators belong._
 
 ---
