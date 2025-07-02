@@ -1,4 +1,4 @@
-# 🌌 Welcome to AuraHyprs
+# 🌌 Welcome to CastleLabs InternAItional
 
 > 🌟 This is the official GitHub home of [**aurahyprs.com**](https://aurahyprs.com) –  
 a vibrant new dimension where creators shine, connect, and thrive.
